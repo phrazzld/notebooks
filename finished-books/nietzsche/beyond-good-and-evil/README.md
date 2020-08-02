@@ -1,1 +1,1 @@
-![Beyond Good & Evil cover](beyond-good-and-evil.jpg)
+![Beyond Good & Evil cover](cover.jpg)

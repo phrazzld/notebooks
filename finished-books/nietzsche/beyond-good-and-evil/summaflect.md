@@ -105,6 +105,18 @@ Nietzsche calls Darwin a "respectable but mediocre Englishman."
 
 ## What is Noble
 
+> Refraining mutually from injury, violence, and exploitation and placing one's will on a par with that of someone else&mdash;this may become, in a certain sense, good manners among individuals if the appropriate conditions are present (namely, if these men are actually similar in strength and value standards and belong together in _one_ body). But as soon as this principle is extended, and possibly even accepted as the _fundamental principle of society_, it immediately proves to be what it really is&mdash;a will to the _denial_ of life, a principle of disintegration and decay.
+>
+> Here we must beware of superificiality and get to the bottom of the matter, resisting all sentimental weakness: life itself is _essentially_ appropriation, injury, overpowering of what is alien and weaker; suppression, hardness, imposition of one's own forms, incorporation and at least, at its mildest, exploitation&mdash;but why should one always use those words in which a slanderous intent has been imprinted for ages?
+> 
+> ... everywhere people are now raving, even under scientific disguises, about coming conditions of society in which "the exploitative aspect" will be removed&mdash;which sounds to me as if they promised to invent a way of life that would dispense with all organic functions. "Exploitation" does not belong to a corrupt or imperfect and primitive society: it belongs to the _essence_ of what lives, as a basic organic function; it is a consequence of the will to power, which is after all the will of life.
+> 
+> &mdash; p. 203, section 259
+
+> There are _master morality_ and _slave morality_&mdash;I add immediately that in all the higher and more mixed cultures there also appear attempts at mediation between these two moralities, and yet more often the interpenetration and mutual misunderstanding of both, and at times they occur directly alongside each other&mdash;even in the same human being, within a _single_ soul.
+>
+> &mdash; p. 204, section 260
+
 > Every philosophy is a foreground philosophy&mdash;that is a hermit's judgment: "There is something arbitrary in his stopping _here_ to look back and around, in his not digging deeper _here_ but laying his spade aside; there is also something suspicious about it." Every philosophy also _conceals_ a philosophy; every opinion is also a hideout, every word also a mask.
 >
 > &mdash; p. 229, section 289

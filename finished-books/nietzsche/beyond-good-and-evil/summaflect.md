@@ -75,7 +75,7 @@ If doing good feels good, how do you know you're really doing good and not just 
 
 ## We Scholars
 
-> ... skepticism is the most spiritual expression of a certain complex physiological condition that in ordinary language is called nervous exhaustion and sickliness... But what becomes sickest and degenerates most in such hybrids [skeptics] is the _will_: they no longer know independence of decisions and the itrepid sense of pleasure in willing&mdash;they doubt the "freedom of the will" even in their dreams.
+> ... skepticism is the most spiritual expression of a certain complex physiological condition that in ordinary language is called nervous exhaustion and sickliness... But what becomes sickest and degenerates most in such hybrids [skeptics] is the _will_: they no longer know independence of decisions and the intrepid sense of pleasure in willing&mdash;they doubt the "freedom of the will" even in their dreams.
 >
 > &mdash; p. 130, section 208
 
